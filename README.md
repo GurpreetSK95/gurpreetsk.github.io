@@ -1,2 +1,2 @@
-# [Gurpreet Singh](www.linkedin.com/in/GurpreteSK95)
+# [Harpreet Singh]
 Page for personal portfolio and achievements.
